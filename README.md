@@ -106,7 +106,7 @@ Estou sempre evoluindo minhas habilidades através de projetos práticos e estud
 # 📫 Contato
 
 💼 LinkedIn: www.linkedin.com/in/cassiane-m-nascimento<br>
-📧 Email: mailto:cassynascimento28@gmail.com
+📧 Email: cassynascimento28@gmail.com
 
 ---
 
